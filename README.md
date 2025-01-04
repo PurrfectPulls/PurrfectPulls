@@ -1,4 +1,3 @@
-Purrfect Pulls
 🐾 Purrfect Pulls
 ✨ Your go-to spot for epic Pokémon card pulls!
 🎊 Passion for the hobby
